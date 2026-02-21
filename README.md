@@ -1,0 +1,1 @@
+# as-l-yap-l-r-bilmiyorsan-z-yle-tarif-edeyim
